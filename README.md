@@ -39,13 +39,23 @@ Không chỉ thế, mẫu <a href="https://neohouse.vn/du-an/biet-thu-hien-dai/"
 Mẫu biệt thự đẹp 3 tầng theo phong cách kiến trúc hiện đại tại quận 12, Tphcm sẽ hứa hẹn mang đến cho quý vị một không gian sống hoàn hảo, công năng sử dụng tiện nghi và thoải mái cùng kiến trúc ngoạt thất sang trọng và đẳng cấp thể hiện rõ được gu thẩm mỹ, cá tính cũng như vị thế xã hội của chủ đầu tư. Hãy liên hệ đến công ty kiến trúc NEOHouse JSC để nhận được sự hỗ trợ tư vấn và giải đáp các thắc mắc cũng như nắm bắt thêm thông tin về mẫu biệt thự đẹp trên nhé!
 
 Thông tin liên hệ
+
 NEOHOUSE - HCM
+
 Đ/c: 8B, Bàu Cát 8, P. 11, Q. Tân Bình, TP. Hồ Chí Minh.
+
 Tel: 0906 100 202.
+
 NEOHOUSE - ĐÀ NẴNG
+
 Đ/c: 63 Phan Đăng Lưu, Q. Hải Châu, Tp. Đà Nẵng
+
 Tel: 0903 544 641.
+
 LH Đối tác: info@neohouse.vn
+
 LH Tư vấn khách hàng: tuvan@neohouse.vn
+
 XƯỞNG NỘI THẤT: Đường Bà Điểm 3, Ấp Bắc Lân, Xã Bà Điểm, Huyện Hóc Môn.
+
 XƯỞNG SẮT- CỬA NHÔM KÍNH: Đường số 4, P. Bình Hưng Hòa A, Q. Bình Tân.
